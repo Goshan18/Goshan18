@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Goshan18
+- 👋 Hi, I’m @Goshan
 - 👀 I’m interested in psychology, coding, physics, phto + videography
 - 🌱 I’m currently learning to code, build my own games, edit my own shoot pictures
 - 💞️ I’m looking to collaborate on random coding projects, photoshoots
