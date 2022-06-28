@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Goshan
-- 👀 I’m interested in psychology, coding, physics, phto + videography
+- 👀 I’m interested in psychology, coding, physics, photo + videography
 - 🌱 I’m currently learning to code, build my own games, edit my own shoot pictures
-- 💞️ I’m looking to collaborate on random coding projects, photoshoots
+- 💞️ I’m looking to collaborate on random coding projects, editing pics + videos <3
 - 📫 How to reach me simple don't, nah just kiding goshangoshan733@gmail.com
 
 <!---
